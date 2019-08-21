@@ -43,6 +43,9 @@ Descriptive paragraph of how capable you are at this skill and, if relevant, how
 
 **Next** (December 2017 - February 2019 )    
 *sales Assistant*  
+- Managing complex situations whilst working under pressure.
+- Using ordering systems and handling customer data which required confindentiality.
+- Working in a team to consistenly provide an efficient service.
 
 ## Hobbies
 My hobbies include photography and baking.
